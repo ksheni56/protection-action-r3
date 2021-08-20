@@ -1,13 +1,2 @@
 # protection-action-r3
-teh on3 4nd 0nly kill4h 0f 411 t1m3s :E
-
-╔╦╦╦╦╦╦╦╦╦╦╦╦╗
-╠╬╬╬╬╬╬╬╬╬╬╬╬╣
-╠╬╬╬╬╬╬╬╬╬╬╬╬╣
-╠╬╬█╬╬╬╬╬╬█╬╬╣
-╠╬╬╬╬╬╬╬╬╬╬╬╬╣
-╠╬╬╬╬╬╬╬╬╬╬╬╬╣
-╠╬█╬╬╬╬╬╬╬╬█╬╣
-╠╬██████████╬╣
-╠╬╬╬╬╬╬╬╬╬╬╬╬╣
-╚╩╩╩╩╩╩╩╩╩╩╩╩╝
+ich sollte echt mal aufhören an den roten pilzen zu lecken
